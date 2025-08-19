@@ -7,6 +7,7 @@
 - 1 cup sugar
 - 1 cup water
 - 1 vanilla bean (or 1 1/2 Tbsp vanilla extract)
+- syrup bs
 
 ## How to Make
 
